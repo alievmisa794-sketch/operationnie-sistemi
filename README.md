@@ -1,1 +1,1 @@
-# dzdzdz
+# operationnie systemi I sredi
