@@ -1,1 +1,1 @@
-# operationnie systemi I sredi
+# ОПЕРАЦИОННЫЕ СИСТЕМЫ И СРЕДЫ
